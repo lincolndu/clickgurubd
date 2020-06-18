@@ -1,5 +1,4 @@
-# Clickguru 
-E-commerce Website
 
 
+# `Comming soon...`
 
