@@ -1,2 +1,2 @@
-# Comming soon...{align=center}
+# Comming soon...
 
